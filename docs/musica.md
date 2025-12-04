@@ -55,6 +55,11 @@ A música é a habilidade de organizar o som para produzir qualquer combinação
 - Site maravilhoso e confiável para adquirir música asiática, principalmente utilizando o host de arquivos Mega.
 - [Resultados de Segurança da URL](https://www.urlvoid.com/scan/sukidesuost.info/)
 
+### 🌟 [DAB Player](https://dab.yeet.su/) • Cadastre-se
+
+- Um contêiner para downloads gratuitos de música em qualidade altíssima.
+- [Resultados de Segurança da URL](https://www.urlvoid.com/scan/dab.yeet.su/)
+
 ## 📑 2 ➜ Aplicativos para Navegador
 
 ### 🌐 [BestMP3Converter](https://www.bestmp3converter.com/)
